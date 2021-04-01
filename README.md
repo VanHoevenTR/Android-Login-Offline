@@ -17,7 +17,7 @@ https://youtube.com/c/MahmoudGamingChannel
 
 # Screenshot
 
-![](https://imgur.com/CJQhHN2.png)
+![](Login https://imgur.com/gallery/CJQhHN2)
 
 # How to implement to APK:
 
